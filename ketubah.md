@@ -50,11 +50,7 @@ Its flashes are flashes of fire,
 the very flame of YHWH.
 Many waters cannot quench love,
 rivers cannot sweep it away.
-
-If a man offered for love
-all the wealth of his house,
-he would be utterly despised.
-Song of Songs 8:6-7
+Song of Songs 8:6-7a
 ```
 ```
 Behold, I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me.
