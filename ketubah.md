@@ -45,12 +45,9 @@ Set me as a seal upon your heart,
 as a seal upon your arm,
 for love is strong as death,
 jealousy is fierce as the grave.
-
 Its flashes are flashes of fire,
 the very flame of YHWH.
-Many waters cannot quench love,
-rivers cannot sweep it away.
-Song of Songs 8:6-7a
+Song of Songs 8:6
 ```
 ```
 Behold, I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me.
